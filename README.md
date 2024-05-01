@@ -5,7 +5,7 @@
 @AliceExploit is the owner of this channel
 
 He constantly preaches on his Telegram channel about scammers
-But he himself is a despicable scammer with dirty tricks
+But he himself is a despicable scammer with dirty tricks.
 All the features of Hook that he boasts about are fabricated.
 
 I have exposed him in this post https://github.com/thuylan99/-AliceExploit
